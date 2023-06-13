@@ -1,6 +1,7 @@
 ---
 title: "La Band"
 weight: 2
+header_menu_title: "La Band"
 header_menu: true
 ---
 Giriamo per il centro Italia dal '93 tra alterne vicende e cambi di lineup.  
