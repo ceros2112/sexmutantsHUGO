@@ -12,12 +12,6 @@ In ogni caso noi ci divertiamo molto.
 # I SEX MUTANTS SONO:
   
 ## Francesco "Rondo" Rondolini
-  
-=======
-
-# I SEX MUTANTS SONO:
-
-## Francesco "Rondo" Rondolini
 
 Batterista e #famososcrittore. Coltiva in egual misura le sue passioni per la musica, il cinema, il cibo, la scrittura, il prosecco e le donne.  
 Finora cibo e prosecco hanno dato frutto.  
@@ -26,7 +20,7 @@ Lo si può trovare nel suo habitat naturale tra la movida del centro di Perugia 
 
 **BAND PREFERITA INTERNAZIONALE:** Queen  
 **BAND PREFERITA ITALIANA:** Marlene Kuntz  
-
+  
 ## Paolo "Testasfitta" Menichetti
 
 Il giovane fuoriclasse. Chitarrista virtuoso che ama nascondere il suo talento durante i live dei Sex Mutants e manager autoeletto della band.  
@@ -37,14 +31,7 @@ Quindi buona parte del repertorio è colpa sua.
   
 **BAND PREFERITA INTERNAZIONALE:** Guns'N'Roses  
 **BAND PREFERITA ITALIANA:** Lunapop  
-
-## Michele "Millo" Milletti
   
-=======
-
-**BAND PREFERITA INTERNAZIONALE:** Guns'N'Roses
-**BAND PREFERITA ITALIANA:** Lunapop  
-
 ## Michele "Millo" Milletti
 
 Cantante/chitarrista nonchè membro originale e content creator dei Sex Mutants.  
@@ -56,10 +43,6 @@ Il suo più grande pregio è quella santa donna di sua moglie.
 **BAND PREFERITA INTERNAZIONALE:** Nirvana  
 **BAND PREFERITA ITALIANA:** Afterhours  
   
-
-**BAND PREFERITA INTERNAZIONALE:** Nirvana  
-**BAND PREFERITA ITALIANA:** Afterhours  
-
 ## Federico "Cero" Cerimonia
 
 Bassista della band con l'incombenza dei cori. Coltiva le sue passioni (in media una ogni quindici minuti) tutte insieme e nella maniera più disordinata possibile.  
