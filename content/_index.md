@@ -9,6 +9,6 @@ header_use_video: false
 header_logo: "images/sex_favicon.png"
 #
 # Headers are safeHTML, you can use HTML tags such as b,i,u,br
-header_headline: 
+header_headline: "Sex Mutants"
 header_subheadline: "Spreading <b>Rock'N'Love</b> Since <b>1993</b>"
 ---
