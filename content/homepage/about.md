@@ -68,6 +68,9 @@ Fate uno sforzo.
 Fonico, roadie, tecnico delle chitarre, scaldapubblico e prima riserva dei Sex Mutants.  
 Dotato di proverbiale, serafica e contagiosa calma, sarebbe in grado di insultare i tuoi parenti di sette generazioni senza provocare reazioni violente.  
 Per lui non esiste problema che una buona dose di nastro carta e/o isolante non possa risolvere, dagli stativi rotti al pubblico molesto.
+
+**BAND PREFERITA INTERNAZIONALE:** Dire Straits  
+**BAND PREFERITA ITALIANA:** Ivano Fossati  
   
 ## Mattia Barbanera  
 
