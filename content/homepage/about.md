@@ -71,7 +71,10 @@ Per lui non esiste problema che una buona dose di nastro carta e/o isolante non 
   
 ## Mattia Barbanera  
 
-![Mattia](/mattia.png) 
+![Mattia](/mattia.png)
 L'ing. pirata Barbanera è l'attuale nostromo della bagnarola Sex Mutants.  
 Analitico e dotato anche lui di una serafica calma non riusciresti mai a percepirlo come una minaccia.  
 Ed è li che ti frega, Federico può testimoniarlo.
+
+**BAND PREFERITA INTERNAZIONALE:** Linkin Park  
+**BAND PREFERITA ITALIANA:** Caparezza
