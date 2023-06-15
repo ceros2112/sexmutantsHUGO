@@ -62,14 +62,16 @@ Fate uno sforzo.
   
 # CREW:
   
-## Giulio "il Pax"
+## Giulio "il Pax"  
 
+![Pax](/pax.png) 
 Fonico, roadie, tecnico delle chitarre, scaldapubblico e prima riserva dei Sex Mutants.  
 Dotato di proverbiale, serafica e contagiosa calma, sarebbe in grado di insultare i tuoi parenti di sette generazioni senza provocare reazioni violente.  
 Per lui non esiste problema che una buona dose di nastro carta e/o isolante non possa risolvere, dagli stativi rotti al pubblico molesto.
   
-## Mattia Barbanera
+## Mattia Barbanera  
 
-L'ing. Barbanera è l'attuale nostromo della bagnarola Sex Mutants.  
+![Mattia](/mattia.png) 
+L'ing. pirata Barbanera è l'attuale nostromo della bagnarola Sex Mutants.  
 Analitico e dotato anche lui di una serafica calma non riusciresti mai a percepirlo come una minaccia.  
 Ed è li che ti frega, Federico può testimoniarlo.
