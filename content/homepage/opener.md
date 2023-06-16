@@ -9,6 +9,6 @@ Se ci conosci siamo sempre noi.
 Di seguito una breve lista di frasi celebri da parte di ognuno di noi:  
 
 > Ho fame. --- Rondo  
-> Stasera c'`e il pubblico delle grandi --- Paolo  
+> Stasera c'è il pubblico delle grandi --- Paolo  
 > Ragazzi io arrivo e imbocco --- Millo  
 > "messaggio vocale 5:57" --- Cero  
