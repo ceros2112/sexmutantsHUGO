@@ -6,8 +6,9 @@ header_menu: true
 ---
 I due commenti post concerto che ci descrivono meglio sono stati:  
   
->"Voi avete il coraggio di fare quello che gli altri non fanno."  
->"Grandi, suonate come i cani arrabbiati."  
+>Voi avete il coraggio di fare quello che gli altri non fanno.  
+  
+>Grandi, suonate come i cani arrabbiati.  
   
 Questo già spiega molte cose.  
 
