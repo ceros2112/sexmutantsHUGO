@@ -4,7 +4,18 @@ weight: 2
 header_menu_title: "La Banda"
 header_menu: true
 ---
-Giriamo per il centro Italia dal '93 tra alterne vicende e cambi di lineup.  
+I due commenti post concerto che ci descrivono meglio sono stati:  
+  
+>"Voi avete il coraggio di fare quello che gli altri non fanno."  
+>"Grandi, suonate come i cani arrabbiati."  
+  
+Questo già spiega molte cose.  
+
+Se siete interessati ad una descrizione più approfondita, il nostro show si compone dei migliori, ma anche e soprattutto dei peggiori, classici della musica italiana (principalmente) ed internazionale.  
+Il tutto arrangiato in chiave punk rock da party band tipo quelle dei college americani e prevalentemente sotto forma di medley/mashup.  
+Na roba che a dirla pare che mammamiaeccheè, ma che a vederla invece vi devo dire.  
+  
+Giriamo per il centro Italia e non solo dal '93 tra alterne vicende e cambi di lineup.  
 Avremmo anche un po' rotto le balle quindi.  
 Nonostante questo pare che la gente si diverta ai nostri concerti, probabilmente il confronto con noi fa salire l'autostima.  
 
