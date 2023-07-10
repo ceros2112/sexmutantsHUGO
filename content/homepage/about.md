@@ -84,6 +84,17 @@ Per lui non esiste problema che una buona dose di nastro carta e/o isolante non 
 **BAND PREFERITA INTERNAZIONALE:** Dire Straits  
 **BAND PREFERITA ITALIANA:** Ivano Fossati  
   
+## Andrea Foreschi
+
+![Mattia](/4esk.png)
+L'unico vero talento nella banda. Purtroppo per lui tra i Sex Mutants non c'è meritocrazia e quindi è ridotto a fare da fonico e/o roadie.  
+Mentore chitarristico e maestro di vita di Paolo con risultati altalenanti su entrambi i fronti.  
+Appassionato di sport che prova e cambia con la stessa frequenza con cui la Ferragni cambia vestiti.  
+Molto poco competitivo in tutte le sue attività, si narra che ancora stia cercando il bulletto con cui perse a Street Fighter nel 1994 in sala giochi a Riccione.  
+Oh, quello spammava gli hadoken.  
+
+**BAND PREFERITA INTERNAZIONALE:** Jeff Buckley
+**BAND PREFERITA ITALIANA:** Fabrizio De André (lui ci tiene ad aggiungere anche i Prophilax, ma noi non ci assumiamo responsabilità)
 ## Mattia Barbanera  
 
 ![Mattia](/mattia.png)
