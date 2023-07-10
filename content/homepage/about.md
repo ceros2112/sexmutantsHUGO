@@ -93,7 +93,7 @@ Appassionato di sport che prova e cambia con la stessa frequenza con cui la Ferr
 Molto poco competitivo in tutte le sue attività, si narra che ancora stia cercando il bulletto con cui perse a Street Fighter nel 1994 in sala giochi a Riccione.  
 Oh, quello spammava gli hadoken.  
 
-**BAND PREFERITA INTERNAZIONALE:** Jeff Buckley
+**BAND PREFERITA INTERNAZIONALE:** Jeff Buckley  
 **BAND PREFERITA ITALIANA:** Fabrizio De André (lui ci tiene ad aggiungere anche i Prophilax, ma noi non ci assumiamo responsabilità)
 ## Mattia Barbanera  
 
