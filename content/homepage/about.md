@@ -104,3 +104,13 @@ Ed è li che ti frega, Federico può testimoniarlo.
 
 **BAND PREFERITA INTERNAZIONALE:** Linkin Park  
 **BAND PREFERITA ITALIANA:** Caparezza
+## Dennis Postini
+
+![Dennis](/dennis.png)
+Il giovane acquisto. Volenteroso e talentuoso batterista/tuttofare che ha messo subito anima e corpo nel progetto.
+Purtroppo per lui la vita è ingiusta e gli siamo capitati noi.
+Ancora non si rende conto dell'errore.
+Gravissimo per giunta.
+
+**BAND PREFERITA INTERNAZIONALE:** Linkin Park  
+**BAND PREFERITA ITALIANA:** Fleshgod Apocalypse
