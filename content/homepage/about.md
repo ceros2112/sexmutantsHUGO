@@ -74,7 +74,7 @@ Fate uno sforzo.
   
 # CREW:
   
-## Giulio "il Pax"  
+## Giulio "il Pax"
 
 ![Pax](/pax.png) 
 Fonico, roadie, tecnico delle chitarre, scaldapubblico e prima riserva dei Sex Mutants.  
@@ -95,7 +95,7 @@ Oh, quello spammava gli hadoken.
 
 **BAND PREFERITA INTERNAZIONALE:** Jeff Buckley  
 **BAND PREFERITA ITALIANA:** Fabrizio De André (lui ci tiene ad aggiungere anche i Prophilax, ma noi non ci assumiamo responsabilità)
-## Mattia Barbanera  
+## Mattia Barbanera
 
 ![Mattia](/mattia.png)
 L'ing. pirata Barbanera è l'attuale nostromo della bagnarola Sex Mutants.  
